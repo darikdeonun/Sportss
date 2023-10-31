@@ -1,1 +1,3 @@
-# Sportss
+# Sports
+Soccer is one of the most popular sports in the world, with over 3.5 billion fans around the globe. Known as football in many parts of the world, this exciting sport has gained a huge following due to its thrilling gameplay and fast-paced action. Wrestling, mankind's oldest and most basic form of recreational combat, traces its origins back to the dawn of civilization. Carvings and drawings estimated to be between 15,000 and 20,000 years old, found in caves in southern Europe, illustrate wrestlers in hold and leverage positions.
+But why are sports so popular? One reason is that sports provide a sense of community [신규가입 꽁 머니 지급](https://ggongnara.com/). For example, sports bring people from all walks of life together to cheer and support their local teams, and some people like betting on sports together with friends as a form of fun and socialization.
